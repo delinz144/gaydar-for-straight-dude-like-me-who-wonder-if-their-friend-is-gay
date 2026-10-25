@@ -1,0 +1,1 @@
+# gaydar-for-straight-dude-like-me-who-wonder-if-their-friend-is-gay
